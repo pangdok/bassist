@@ -1,0 +1,2 @@
+# bassist
+baso dan sosis
